@@ -1,1 +1,1 @@
-# John-Kenneth-Dimarucut
+Hey  👋🏻, I'm John Kenneth Dimarucut
